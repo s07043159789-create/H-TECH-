@@ -1,2 +1,2 @@
-# H-TECH-
+# H-TECH
 Digital solutions services 
